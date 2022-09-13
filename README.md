@@ -1,1 +1,1 @@
-https://UnknownForce199.github.io/rsschool-cv/cv
+https://UnknownForce199.github.io/rsschool-cv/
